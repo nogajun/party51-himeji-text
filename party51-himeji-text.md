@@ -112,7 +112,7 @@ Twitterでもトゥリバンに行っている人がチラホラいて、写真�
 
 2017年1月8日(日)  Quiet Holiday 
 
-野方 純 <mailto:party51@signal11.info> ／ 珍骨丸
+野方 純 <party51@signal11.info> ／ 珍骨丸
 
 
 この文書は[パブリック・ドメイン](https://creativecommons.org/publicdomain/zero/1.0/deed.ja)の下に提供されています。（野方作成部分のみ。引用などを除く）
